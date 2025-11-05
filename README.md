@@ -10,3 +10,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: Discord
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: "Sea of Thieves" is great
+- 🎮 Gamer by night
